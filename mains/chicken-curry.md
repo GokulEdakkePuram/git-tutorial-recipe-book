@@ -13,11 +13,11 @@
 - turmeric powder
 - dried red chilli (optional)
 
-## instructions
+## Instructions
 - Heat a thick based vessel, and heat oil
 - Thinly slice the onions and add them to pan for sautee
 - when onions are slightly brown, add ginger, garlic and chilli crushed together
-- When the raw smell of gralic and chilli fades, lower the heat and add the powdered spices
+- When the raw smell of garlic and chilli fades, lower the heat and add the powdered spices
 - mix for 30 seconds
 - Add the tomatoes and sautee till tomatoes are soft
 - Add the chicken and fry it for a few minutes
